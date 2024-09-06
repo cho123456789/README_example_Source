@@ -4,7 +4,7 @@
 
 ***
 
-___
+___![1](https://github.com/user-attachments/assets/3cb33872-7ecc-4e74-b9c6-3313f05a13a3)
 
 
 *기울기1*
